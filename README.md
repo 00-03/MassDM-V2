@@ -8,7 +8,6 @@ Updates:
 
 •Able to DM more people
 
-•Dont have to have DM's with them.
 
 Disadvantages:
 
