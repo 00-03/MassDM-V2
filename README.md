@@ -17,4 +17,4 @@ Disadvantages:
 
 by skate#2021
 
-note:DM me if you want something custom done such as a modbot or something.
+note:like my shit or whatever it is on github and i drop cool stuff haha.
